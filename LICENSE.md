@@ -1,4 +1,4 @@
-# 
+# Turbo TurboTax complementos para Mac OS | Principal TurboTax complementos para PC Windows. Con e-file del IRS y reconocimiento OCR — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
